@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **mahavishnu.ec20@bitsathy.ac.in**
 
-- ⚡ Fun fact **What makes me feel powerful"fixing bugs in other people's code..!**
+- ⚡ Fun fact **What makes me feel powerful" is fixing bugs in other people's code..!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
